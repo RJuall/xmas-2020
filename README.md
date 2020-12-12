@@ -15,7 +15,7 @@ I still love y'all, though! -RJ
  - [New Insulated Slippers](https://www.llbean.com/llb/shop/65637?page=mens-wicked-good-moccasins) (size 12)
  - [Chefsteps subscription](https://www.chefsteps.com/studiopass)
  - Little things for my desk at work, [for example](https://store.sonnyangelusa.com/smiski.html)
- - [Fancy soap] (https://www.mistralsoap.com/collections/mens-collection)
+ - [Fancy soap](https://www.mistralsoap.com/collections/mens-collection)
  - [Anything and everything from Mala Market](https://themalamarket.com/collections/all)
  - [A tiny concrete home](https://www.etsy.com/shop/MaterialImmaterial)
  - [Electric giddle](https://www.zojirushi.com/app/product/eadcc)
